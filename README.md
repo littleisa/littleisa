@@ -17,4 +17,4 @@ Desenvolvedora jr e automadora | Construo fluxos, bots e integrações que econo
            
             - ### 📬 Contato
            
-            - - Instagram: [@achadinhosyasmin24](https://instagram.com/achadinhosyasmin24)
+            - - Instagram: [@isa_pedias](https://instagram.com/isa_pedias)
